@@ -1,3 +1,5 @@
+*Boas vindas ao meu perfil* 💙💙
+
 olá tudo bem ?
 
 Meu nome é thaynara
